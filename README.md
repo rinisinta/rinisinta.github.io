@@ -1,1 +1,0 @@
-# rinisinta.github.io
